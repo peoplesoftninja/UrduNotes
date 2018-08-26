@@ -30,4 +30,7 @@
 
 * `zarafat = clever in humour, chandler type`
 
-* Testing how branch push works
+![](./img/taaham.png)
+
+* `taaham = however`
+* `gosha-nashiini = seclusion`
