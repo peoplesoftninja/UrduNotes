@@ -27,6 +27,12 @@
 
 * `karakht = dry`
 
+![](./img/kooch.png)
+
+* `daar-e-faani se kooch kiya = departed from this world`
+* `daar-e-faani/fanaa = house of mortality`
+* `daar-e-baqa = house of eternity`
+* `kooch = departed`
 
 * `zarafat = clever in humour, chandler type`
 
