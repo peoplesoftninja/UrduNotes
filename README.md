@@ -40,3 +40,16 @@
 
 * `taaham = however`
 * `gosha-nashiini = seclusion`
+
+## Koi ye keh de - Jigar Moradabadi
+
+* Koi yeh keh de Gulshan Gulshan // Laakh balaaein ek nasheman
+* phool khile haiN Gulshan Gulshan // Lekin apna apna Daaman
+* ishq hai pyaare khel nahin hai // ishq hai kare-shisha-o-ahan `work of glass and iron`
+* aa ki na jaane tujh bin kab se // ruh hai laasha jism hai madfan `grave`
+* barq-e-hawdis `lightening of calamities` allah allah // jhun rahi hai shaakh-e-nasheman `nasheman=nest`
+* baithe hum har bazm mein lekin // jhaaD ke utthe apna Daaman
+* *rangiin fitrat saada tabiyat // farsh-nashin `floor dweller` aur arsh-nasheman `sky dweller`*
+* shamma hai lekin dhundli dhundli // saya hai lekin raushan raushan
+* kaanton ka bhi haq hai kuchh aakhir // kaun chudae apna daman
+* chalti phir chaanw hai pyaare // kis ka sahra kaisa gulshan
